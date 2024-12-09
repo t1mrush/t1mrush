@@ -1,2 +1,2 @@
-- aka skider228
+- aka skidder228
 - мне лень что-то писать
